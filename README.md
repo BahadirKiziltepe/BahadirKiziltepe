@@ -5,7 +5,7 @@
 - 📫 How to reach me
   > My E-mail- bahadirkiziltepe98@gmail.com
   > My Discord- Must Be Happy#0405
-  > My phone- 631 704 5102, highly doubt answering a phone call, a text works a lot better.
+  > My phone- 631 704 5102, highly doubt answering a phone call, a text or an email works a lot better.
 
 <!---
 BahadirKiziltepe/BahadirKiziltepe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
