@@ -1,5 +1,5 @@
 - Hi, I’m Bahadir Kiziltepe, 24-year-old.
-- I love creating softwares or video games. You can find couple of my personal projects down below.
+- I love creating software or video games. You can find a couple of my projects down below.
 - How to reach me on:
   > My E-mail- bahadirkiziltepe98@gmail.com
 
